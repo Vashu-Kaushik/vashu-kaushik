@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi 👋, I'm 😊VASHU KAUSHIK😊<br><br>"Technology is best when it brings people together"<br><br>🔭 I’m worked on Swastha Assist<br><br>🌱 I’m learned WEB DEVELOPMENT & CLOUD TECHNOLOGIES<br><br>📫 How to reach ME vashusharma6677@gmail.com
+Hi 👋, I'm 😊VASHU KAUSHIK😊<br><br>"Technology is best when it brings people together"<br><br>🔭 I’m worked on Swastha Assist<br><br>🌱 I’m learned WEB DEVELOPMENT & CLOUD TECHNOLOGIES<br><br>📫 How to reach me vashusharma6677@gmail.com
 
 
 ## 🌐 Socials:
